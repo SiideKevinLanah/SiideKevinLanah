@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SiideKevinLanah
-- 👀 I’m interested in playing football , learning new things, making content 
-- 🌱 I’m currently learning HTML CSS
+- 👀 I’m interested in playing football ,learning new things, making content 
+- 🌱 BTech AI 2nd Year
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me siidelanahcr@gmail.com
 - 😄 Pronouns: He/Him
